@@ -1,4 +1,4 @@
-### Hi there 👋
+### Olá, me chamo **Thainara**😄 
 
 <!--
 **th4ijhp/th4ijhp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
